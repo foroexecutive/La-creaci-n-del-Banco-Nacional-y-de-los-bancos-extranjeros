@@ -1,1 +1,2 @@
-# La-creaci-n-del-Banco-Nacional-y-de-los-bancos-extranjeros
+# La-creación-del-Banco-Nacional-y-de-los-bancos-extranjeros
+Cuando todo hacía suponer que en el círculo del negativo de acordar al uso del billete toda la importancia que reviste comenzó a partir de 1872, en rara coincidencia con la creación del Banco Nacional, una verdadera fuga de oro que redujo las reservas a 10 millones en 1873, a 6 en 1874 y a menos de 3 en 1875. En previsión de fugas más acentuadas una ley de junio de 1874 autorizaba al Banco de la Provincia a retirar de su Oficina de Cambio tres millones de pesos fuertes destinados a aumentar su propia reserva, aumentándole además en 6 millones la emisión de pesos fuertes.
